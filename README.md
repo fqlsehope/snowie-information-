@@ -1,4 +1,4 @@
-> . HEYO!!! names snowie!! ^_^
+> . HIYA!!! names snowie!! ^_^
 
 > . 14, Ambivert, Bisexual
 
@@ -10,6 +10,6 @@
 
 > . DNI - Jay, Wind.
 
-> . i dont know how tghis website works omg >_<
+> . discord : _fqlsehope. i don't accept random friend requests!
 
  ⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔
