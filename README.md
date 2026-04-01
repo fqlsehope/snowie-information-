@@ -6,6 +6,10 @@
 
 > . DO NOT COPY MY SKINS!!! pls bro it takes so long to make one and i’m super uncomfortable with that, inspo is fine
 
+> . 5/31
+
+> . DNI - Jay, Wind.
+
 > . i dont know how tghis website works omg >_<
 
  ⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔
