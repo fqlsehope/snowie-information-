@@ -8,7 +8,7 @@
 
 > . 5/31
 
-> . DNI - Jay, Wind.
+> . mostly hanging out on island or near library ! 
 
 > . discord : _fqlsehope. i don't accept random friend requests!
 
