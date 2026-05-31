@@ -1,6 +1,6 @@
 > . HIYA!!! names snowie!! ^_^
 
-> . 14, Ambivert, Bisexual
+> . 15, Ambivert, Bisexual
 
 ⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔
 
